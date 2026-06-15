@@ -60,7 +60,7 @@ I enjoy transforming ideas into practical solutions through research, engineerin
 
 ◆ 1st Prize — Open Ended Project Poster Presentation Competition
 
-◆ ◆ Research Manuscript Under Review for Publication
+◆ Research Manuscript Under Review for Publication
 
 ◆ GitHub Student Developer Pack Recipient
 
